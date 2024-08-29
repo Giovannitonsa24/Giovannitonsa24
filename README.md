@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Giovanni dos Santos Tonsa.
+- 👋 Hi, I’m Giovanni dos Santos Tonsa.
 - 👀 I'm interested in learning programming.
 - 🌱 I'm currently learning to be a full-stack programmer.
 - 💞️ I'm looking to collaborate on your site.
