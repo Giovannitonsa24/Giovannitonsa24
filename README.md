@@ -5,7 +5,6 @@
 - 📫 How to reach me through my
  instagram: @giovanni_tonsa
  whatzapp : 11 93034-2494
-- 😄 Pronouns: Tonsa.
 - ⚡ Fun fact: I'm a musician, I play the saxophone and I like to play retro games.
 
 
